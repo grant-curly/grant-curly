@@ -16,6 +16,7 @@
 > if u see me online during the day *__99% of the time i'm afk w/ my friend @fuzzy-cactus__* while were in class -
 if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab doing work ^^
 
+> I cuddle/kiss ponies a lot - it doesn't mind I ship the characters!
 
 
 
