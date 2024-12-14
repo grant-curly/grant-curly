@@ -11,7 +11,6 @@
 
 ![6e941e51](https://github.com/user-attachments/assets/7ccf85ae-f98f-4333-8699-d5efb99cd61a)
 
-![download](https://github.com/user-attachments/assets/57164e7d-b4b8-4d21-8fa6-2680ca79bbd6) 
 >if u see me online during the day *__99% of the time i'm afk w/ my friend @fuzzy-cactus__* while were in class -
 if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab doing work 
 
