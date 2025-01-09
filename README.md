@@ -14,7 +14,7 @@ if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab d
 
 > I cuddle/kiss ponies a lot - it doesn't mean I ship the characters nor is it meant to be romantic! 
 
-> I don't hide a lot of people but I hide anyone under the proship tree near the mw area immediately - sorry if u were just sitting under there, didnt know about the area and I hide u unfairly, I just dont wanna risk it lol 
+> I don't hide a lot of people but I hide anyone under the proship tree near the mw area immediately - sorry if u were just sitting under there & didnt know about the area and I hide u unfairly, I just dont wanna risk it lol 
 
 </p> thanks 4 reading!!
 
