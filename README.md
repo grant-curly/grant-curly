@@ -17,7 +17,7 @@ if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab d
 > I don't hide a lot of people but I hide anyone under the proship tree near the mw area immediately - sorry if u were just sitting under there & didnt know about the area and I hid u, I just dont wanna risk it lol 
 
 
-> Shipping: **Squid game** ✅ I'm okay w/ doing any ships from squid game as along as they aren't illegal etc . . . **Mouthwashing** ❌ pls don't do any ships with me if I'm cosplaying as a mw character just because I personally arent a fan of them 😭 joke ships r okay tho ofc ^_^
+> Shipping: **Squid game** ✅ I'm okay w/ doing any ships from squid game as along as they aren't illegal etc . . . **Mouthwashing** ❌ pls don't do any ships with me if I'm cosplaying as a mw character - sorry but I personally just arent a fan of them 😭 joke ships r okay tho ofc!! 
 </p> thanks 4 reading!!
 
 
