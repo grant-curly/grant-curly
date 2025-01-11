@@ -3,7 +3,7 @@
 ![ezgif-3-9b70281bb3](https://github.com/user-attachments/assets/d6680913-c926-46da-a27a-bf3df0f7fd5d)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-[Strawpage](https://grant-curly.straw.page) [Atabook](https://grantcurly.atabook.org/)
+[Strawpage](https://grant-curly.straw.page) ‎ ‎ ‎ ‎ ‎ [Atabook](https://grantcurly.atabook.org/)
 
 
 
