@@ -20,7 +20,10 @@ if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab d
 
 </p> thanks 4 reading!! 
 
-![walkpawdivider](https://github.com/user-attachments/assets/804531e8-bc18-46b4-a507-2caaebf5e081)
+
+![8afcbbc2](https://github.com/user-attachments/assets/de38dc57-2e1f-495b-a246-c97151373608)
+
+
 
 
 
