@@ -21,7 +21,7 @@ if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab d
 </p> thanks 4 reading!! 
 
 
-![8afcbbc2](https://github.com/user-attachments/assets/de38dc57-2e1f-495b-a246-c97151373608)
+![9404c016](https://github.com/user-attachments/assets/8bf7f002-61b5-4d94-ad37-b485d385b81d)
 
 
 
