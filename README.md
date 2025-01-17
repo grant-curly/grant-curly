@@ -1,6 +1,6 @@
 ![d9209fb0](https://github.com/user-attachments/assets/9f1751c5-da5a-4d09-be0d-d948e0fc3a2e)
 
-![ezgif-3-9b70281bb3](https://github.com/user-attachments/assets/d6680913-c926-46da-a27a-bf3df0f7fd5d)
+![file](https://github.com/user-attachments/assets/57898512-d2d0-4788-b8d8-9e83123946dc)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 [Strawpage](https://grant-curly.straw.page) ‎ ‎ ‎ ‎ ‎ [Atabook](https://grantcurly.atabook.org/) ‎ ‎ ‎ ‎ ‎ [Check out my pony archive!!](https://aaronsponyarchives.straw.page/)
