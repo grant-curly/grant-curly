@@ -22,6 +22,24 @@ if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab d
 
 
 
+ 
+ ![ezgif-3-c44d16b886](https://github.com/user-attachments/assets/cbfd15f4-1461-44e9-b091-d4215968ec1b)![e31](https://github.com/user-attachments/assets/1cf13e55-35b7-40e7-a18e-4f55d77c5336)![m11](https://github.com/user-attachments/assets/d8b2d2ce-bab2-4a20-bc26-5ba09afd78aa)![q26](https://github.com/user-attachments/assets/a4172112-22c7-4886-a9e5-5a7fd9cb0d9e)![b24](https://github.com/user-attachments/assets/f5c2bc37-82cb-4f4e-aa7f-ec174143bdb8)![german-shepherd-lover](https://github.com/user-attachments/assets/62693889-13c5-43aa-a890-d350922c7f65)![e61](https://github.com/user-attachments/assets/8d2bd352-dab9-468a-9706-08478668873b)![e93](https://github.com/user-attachments/assets/7c13f80a-487c-4576-8cd0-5fd429ae6929)![v18](https://github.com/user-attachments/assets/4b90160a-4f0a-46d8-b28e-326d1d15c513)![v34](https://github.com/user-attachments/assets/b7f80652-f65d-4cb6-972c-3a509c654284)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
