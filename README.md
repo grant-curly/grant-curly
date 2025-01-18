@@ -22,7 +22,7 @@ if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab d
 
 > I don't hide a lot of people but I hide anyone under the proship tree near the mw area immediately - sorry if u were just sitting under there & didnt know about the area and I hid u I just don't wanna risk it :P
 
- thanks 4 reading!! ![d51dacc1](https://github.com/user-attachments/assets/2677c4b0-b368-4447-9dda-ea8a750a0768)
+ ### thanks 4 reading!! ![d51dacc1](https://github.com/user-attachments/assets/2677c4b0-b368-4447-9dda-ea8a750a0768)
 
 
 
