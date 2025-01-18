@@ -18,9 +18,9 @@
 >if u see me online during the day *__99% of the time i'm afk w/ my friend @fuzzy-cactus__* while were in class -
 if u come up to me & I don't reply, I promise I'm not ignoring u! Just off-tab doing work 
 
-> I cuddle/kiss ponies a lot - it doesn't mean I ship the characters nor is it meant to be romantic! 
+> I cuddle/kiss ponies a lot - it *__doesn't__* mean I ship the characters nor is it meant to be romantic! 
 
-> I don't hide a lot of people but I hide anyone under the proship tree near the mw area immediately - sorry if u were just sitting under there & didnt know about the area and I hid u I just don't wanna risk it :P
+> I don't hide a lot of people but **I hide** anyone under the *__proship tree__* near the mw area immediately - sorry if u were just sitting under there & didnt know about the area and I hid u I just don't wanna risk it :P
 
  ### thanks 4 reading!! ![d51dacc1](https://github.com/user-attachments/assets/2677c4b0-b368-4447-9dda-ea8a750a0768)
 
