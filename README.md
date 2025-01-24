@@ -9,7 +9,7 @@
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-[Strawpage](https://grant-curly.straw.page](https://namgyu-irl.straw.page/)) ‎ ‎ ‎ ‎ ‎ [Atabook](https://grantcurly.atabook.org/) ‎ ‎ ‎ ‎ ‎ [Check out my pony archive!!](https://aaronsponyarchives.straw.page/)
+[Strawpage](https://namgyu-irl.straw.page/) ‎ ‎ ‎ ‎ ‎ [Atabook](https://grantcurly.atabook.org/) ‎ ‎ ‎ ‎ ‎ [Check out my pony archive!!](https://aaronsponyarchives.straw.page/)
 
 
 
